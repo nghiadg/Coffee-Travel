@@ -6,6 +6,10 @@
 
 I go to here at `13:59` and just have approximately `10 persons`. Because the weather is good, not too hot and not rain so they choose a position near balcony. Just like me.
 
+`Dứa ép` and `Chanh tươi` in here is good, like natural. 
+
+Today I learn `Golang` and a little `Vim` in `2.5 hours` then read book - `When things fall apart`. The book for heal the soul, and provide mindset to pass any pain in life.
+
 
 `30/06/2023`
 
