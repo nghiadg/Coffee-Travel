@@ -10,6 +10,8 @@ I go to here at `13:59` and just have approximately `10 persons`. Because the we
 
 Today I learn `Golang` and a little `Vim` in `2.5 hours` then read book - `When things fall apart`. The book for heal the soul, and provide mindset to pass any pain in life.
 
+In when the evening, everybody comes here so much. Approximately 15 people, I think so. They talking and meet with their friends. 
+
 
 `30/06/2023`
 
