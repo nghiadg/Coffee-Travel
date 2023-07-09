@@ -9,6 +9,12 @@ The air is fresh here although have some vehicles and light wind. I love the ope
 
 A bit later, I will try new coffee and update more.
 
+I will try `Cafe cốt dừa` and it's well. I have a taste of coconut and a little bitter of the cafe. It has some form like `Bạc xỉu` but it's better than `Bạc xỉu`. 
+
+I also try `Trà táo bạc hà` but it is simple although the price is high.
+
+Today, I read `When things fall apart` done. But I need read it again because I haven't understand all yet.
+
 `02/07/2023`
 
 #### Try `Cafe Nâu Đá` at `Aha Coffee` in `59 Lê Thanh Nghị, Đồng Tâm, Hai Bà Trưng, Hà Nội`.
