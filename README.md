@@ -1,3 +1,14 @@
+`09/07/2023`
+#### Try `Nâu đá` at `Aha Coffee` in `59 Lê Thanh Nghị, Đồng Tâm, Hai Bà Trưng, Hà Nội`
+
+When I come at 9:00 am, Aha Coffee had approximately 20 people. Awesome, only one morning, it takes approximately 400.000đ to 500.000đ profit.
+
+Today, I try `Nâu đá` again. This time, It has a mild sour taste and doesn't have bitter so much like the previous one. In short, It's not good.
+
+The air is fresh here although have some vehicles and light wind. I love the open view because it makes me fresh, I love nature.
+
+A bit later, I will try new coffee and update more.
+
 `02/07/2023`
 
 #### Try `Cafe Nâu Đá` at `Aha Coffee` in `59 Lê Thanh Nghị, Đồng Tâm, Hai Bà Trưng, Hà Nội`.
