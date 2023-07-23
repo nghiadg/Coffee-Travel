@@ -1,3 +1,8 @@
+`23/07/2023`
+#### Try `Rau má đậu xanh` at `Aha Coffee` in `59 Lê Thanh Nghị, Đồng Tâm, Hai Bà Trưng, Hà Nội`
+
+This drink is very well. Maybe, because I like green beans. It has the green color of pennywort and the white of green bean powder. It's is cool, this mean is inside cool. It's not too sweet and I think it can be drunk in the morning instead of food. But I think it can't drunk every day beacause it's so greasy.
+
 `09/07/2023`
 #### Try `Nâu đá` at `Aha Coffee` in `59 Lê Thanh Nghị, Đồng Tâm, Hai Bà Trưng, Hà Nội`
 
